@@ -7,3 +7,5 @@
 **Hobby:** DJing
 
 **Favourite Colour:** Green
+
+**Favourite Music:** House
